@@ -25,8 +25,6 @@ Contact
 If you have questions about these Terms, contact us at: lair.of.darkness.official@gmail.com.
 
 #
-#
-#
 
 Terms of Service for Kousei.
 
