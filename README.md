@@ -24,9 +24,9 @@ We may update these Terms from time to time. Continued use of the bot after chan
 Contact
 If you have questions about these Terms, contact us at: lair.of.darkness.official@gmail.com.
 
-
-
-
+#
+#
+#
 
 Terms of Service for Kousei.
 
